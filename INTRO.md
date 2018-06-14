@@ -15,3 +15,19 @@ Executive Whitepaper Link:
 https://charitycompassioncoin.com/ccc-vision
 
 https://img1.wsimg.com/blobby/go/1217507f-e02a-4252-ab29-f0cd42bf2ef9/downloads/1cb17p3ea_117962.pdf
+
+Charity Compassion Coin (CCC) Social Media Influences:
+
+Facebook:
+https://www.facebook.com/CharityCompassionCoin/
+
+https://www.facebook.com/groups/1385095844969503/
+
+Telegram:
+https://t.me/CharityCompassionCoin
+
+Instagram:
+https://www.instagram.com/charitycompassioncoin/
+
+Twitter:
+https://twitter.com/CCC_GIVES
